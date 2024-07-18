@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Frokality
-- 👀 I’m interested in ratting random skids :33
+- 👀 I’m interested raping kids :33
 - 🌱 I’m currently learning NOTHING
 - 💞️ I’m looking to collaborate on NOTHING!!
 - 📫 How to reach me i dont accept RANDOMS!!!!! >:((
