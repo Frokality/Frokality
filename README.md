@@ -1,10 +1,4 @@
-- 👋 Hi, I’m @Frokality
-- 👀 I’m interested raping kids :33
-- 🌱 I’m currently learning NOTHING
-- 💞️ I’m looking to collaborate on NOTHING!!
-- 📫 How to reach me i dont accept RANDOMS!!!!! >:((
-- 😄 Pronouns: chink/rapist
-- ⚡ Fun fact: im the smartest person on earth 
+I AM OWNER OF FROKWARE #1 CHEAT IN THE WORLD
 
 <!---
 Frokality/Frokality is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
